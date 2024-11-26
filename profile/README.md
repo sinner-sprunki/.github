@@ -2,6 +2,8 @@
 
 # [Play Sprunki Sinner Edition Now!](https://www.sprunkigames.com/en/sprunki-sinner-edition/)
 
+# [Play Sprunki Sinner Edition Now!](https://www.sprunkii.com/games/sprunki-sinner/)
+
 ![sprunki-sinner-Edition](https://github.com/user-attachments/assets/d579d1f0-3eff-49b6-a72d-08bf17ccee11)
 
 Hey gamers! Ready to dive into something totally awesome? **Sprunki Sinner Edition** is here, and it's about to blow your mind! This isn't just another music game – it's the fan-made mod that's taking the Incredibox universe by storm. Trust me, once you start playing **Sprunki Sinner Edition**, you won't want to stop!
