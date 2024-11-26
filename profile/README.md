@@ -53,6 +53,6 @@ Don't sleep on this, seriously! Head over to SPrunki Games and download **Sprunk
 
 See you in the mix! 🎵🔥
 
-[Play Sprunki Sinner Edition Now!](https://www.sprunkigames.com/en/sprunki-sinner-edition/)
+# [Play Sprunki Sinner Edition Now!](https://www.sprunkigames.com/en/sprunki-sinner-edition/)
 
 #Gaming #SprunkiSinnerEdition #MusicGaming #IndieGames
